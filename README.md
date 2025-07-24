@@ -30,5 +30,5 @@ To build hands-on expertise in corporate valuation by applying real-world data a
 Contact
 
 For queries or feedback:  
-**Muskan Mansuri** – [LinkedIn Profile](www.linkedin.com/in/muskan-mansuri-44898024b)
+**Muskan Mansuri** – [LinkedIn Profile](https://www.linkedin.com/in/muskan-mansuri-44898024b)
 
